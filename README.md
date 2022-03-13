@@ -6,5 +6,3 @@ This is a note
 Second edi
 
 dude just fucking work what the fuck
-
-stupid
